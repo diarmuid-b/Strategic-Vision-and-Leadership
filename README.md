@@ -20,7 +20,7 @@ This alignment is not accidental — it is the result of deliberate planning, cr
 
 **Curriculum Strategy and Long‑Term Planning**
 
-The curriculum map demonstrates a structured progression from foundational skills in KS3 to advanced technical capability in KS5. My leadership ensures that:
+The curriculum map demonstrates a structured work flow and progression from foundational skills in KS3 to advanced technical capability in KS5. My leadership ensures that:
 
 • 	Knowledge and skills build logically year‑on‑year
 • 	Students move from guided tasks to independent, client‑driven design work
